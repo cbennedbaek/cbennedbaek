@@ -7,7 +7,7 @@ I enjoy working on challenging projects and continuously learning new and exciti
 
 ## 💼 Experience
 
-> Total YOE: 4+ Years (Mid-Level Professional)
+> Total YOE: 5+ Years (Mid-Level Professional)
 
 ### Software Engineer at AutoProff.com (Established)
 **2024-11-01 - Present**
